@@ -5,4 +5,4 @@
 
 ### 🖥️ 데모 영상
 
-https://github.com/user-attachments/assets/f1ac2348-66a0-4e02-94bd-30028cd05d45"
+https://github.com/user-attachments/assets/f1ac2348-66a0-4e02-94bd-30028cd05d45
