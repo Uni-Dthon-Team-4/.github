@@ -5,4 +5,5 @@
 
 ### 🖥️ 데모 영상
 
-https://github.com/user-attachments/assets/f1ac2348-66a0-4e02-94bd-30028cd05d45
+
+![PICKNPOLY-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/0f042191-564c-4d62-a2f5-a047352839bb)
